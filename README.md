@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on whatever helps me complete my goals.
 - 📫 How to reach me AllThingsMaine@yahoo.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Over 50% of all diseases are from waterborne pathogens.
+- ⚡ Fun fact: Jesus is Lord.
 
 <!---
 Sollertree/Sollertree is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
